@@ -1,2 +1,3 @@
 # Hello-World
-A New Beginning 
+
+I love all things Celtic.  The mystery and magic of the Celts inspire me. 
